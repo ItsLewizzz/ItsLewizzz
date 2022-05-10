@@ -4,4 +4,4 @@ I'm Lewis, an 19 year-old student from the United Kingdom. I'm currently studyin
 
 ### 📬 Get in Touch
 
-- Discord: ItsLewizzz#6023
+- Discord: ItsLewizzz#0001
